@@ -1,1 +1,1 @@
-#### swe intertested in machine learning and artificial intelligence.*＊
+#### swe intertested in ml and ai.*＊
